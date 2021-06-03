@@ -3,7 +3,7 @@ Hello, this is my account and I love someone that is half Real Life and half Fan
 
 
 This is where I collect all of my public stuff (personal project) and my private stuff (assignments).
-Have a free tome to look around :)
+Have a free time to look around :)
 
 
 Owh, free wallpaper for you
